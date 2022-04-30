@@ -1,6 +1,6 @@
 ### Hey 👋
 
-I'm Nickolas! Currently studying information technology at IFSP - 🇧🇷
+Eu sou o nickolas! Atualmente estou estudando Informática no IFSP - 🇧🇷
 
 #### Make yourself at home! 😊
 
